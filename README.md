@@ -1,5 +1,3 @@
-### Pra cima...AVANTE! 
-
 
 ##
 
